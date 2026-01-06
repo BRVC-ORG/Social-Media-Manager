@@ -68,7 +68,7 @@ Medical
 
 Paid time off
 
-Salary
+Salary $275,000 - 375,000 (Depending on qualifications)
 
 Competitive pay package
 
