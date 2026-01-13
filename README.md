@@ -72,4 +72,4 @@ Salary $275,000 - 375,000 (Depending on qualifications)
 
 Competitive pay package
 
-Email resume to brvc.llc@googlemail.com
+Email resume to info@brvc-org.com
